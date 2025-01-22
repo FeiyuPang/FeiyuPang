@@ -1,4 +1,4 @@
-🌟 **NCEPU AI Student** | 🚀 **Future KAUST Scholar** | 💻 **AI Enthusiast**
+🌟 **NCEPU AI Student** | 🚀 **Future KAUST Master** | 💻 **AI Enthusiast**
 
 Hey there! I'm a passionate **Artificial Intelligence** student at **NCEPU** and **ADU**. My journey in AI is fueled by curiosity and a relentless drive to learn. 📚✨
 
